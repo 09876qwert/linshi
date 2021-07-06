@@ -1,2 +1,0 @@
-# linshi
-vyububytybvt
